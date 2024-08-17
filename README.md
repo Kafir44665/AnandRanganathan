@@ -128,4 +128,15 @@ Never forget, that Jawaharlal Nehru not only issued directives to his ministers 
 </tr>
 </table>
 
-    
+---
+
+Freedom of Expression under @INCIndia
+. A comprehensive, crowdsourced thread in response to @ShashiTharoor
+'s tweet:
+
+![~/Downloads/arDMvxYHeVAAEtGTf.jpg](./img/arDMvxYHeVAAEtGTf.jpg)
+
+https://x.com/ARanganathan72/status/922096036440555521
+
+
+
