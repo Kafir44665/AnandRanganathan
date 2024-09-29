@@ -78,7 +78,7 @@ Nothing to worry. Democracy is alive and kicking in Tamil Nadu.
 
 ---
 
-Just a fraction of the sporting events and stadia named after Nehru, Indira, and Rajiv Gandhi, without doubt the greatest sporting dynasty the world has ever seen.
+Just a fraction of the sporting events and stadia named after Nehru, Indira, and Rajiv Gandhi, without doubt the greatest sporting dynasty the world has ever seen...
 
 ![namedIndiraNehru](./img/namedIndiraNehru,Rajiv.jpeg)
  
